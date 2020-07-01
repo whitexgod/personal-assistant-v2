@@ -3,4 +3,4 @@
 The code of the assistant is given here if you want to see the assistant in action then go to my youtube channel 
 link is given below :
 
-https://www.youtube.com/channel/UCiu8e-IoMY_BDhjjCVYxKKg?view_as=subscriber
+https://www.youtube.com/watch?v=KM8Vq6TUFdg&t=446s
